@@ -1,1 +1,1 @@
-# Course_1_Duke_University
+# Duke_University
